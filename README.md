@@ -9,6 +9,8 @@ Blood group: O+ve
 
 PIN: 670705
 
+Landmark: Nellickampoil
+
 
 
 Hobbies:
