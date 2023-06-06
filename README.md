@@ -18,3 +18,7 @@ Travelling
 Reading books
 
 watiching movies
+
+plying crickt
+
+
