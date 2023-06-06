@@ -6,4 +6,14 @@ Place :Kannur
 
 Blood group: O+ve
 
+
 PIN: 670705
+
+
+
+Hobbies:
+
+Travelling
+
+Reading books
+
